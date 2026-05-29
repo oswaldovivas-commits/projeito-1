@@ -6,3 +6,4 @@
 - orgulho da venezuela👽
 - nacido en artigas caraca🇻🇪
 - 
+![gif do neutro](https://media1.tenor.com/m/S0kylLDTYhIAAAAC/gustavo-soto.gif)
