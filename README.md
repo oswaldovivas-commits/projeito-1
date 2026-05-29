@@ -10,4 +10,4 @@
 
 **neutro mente loca**
 
-_escrever assim ó_
+_escrever assim ó_sem itálico e agora _com itálico_
